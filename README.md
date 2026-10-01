@@ -53,7 +53,4 @@ If you are looking for stock market training in Lucknow, consider factors such a
 
 Learn more about stock market courses and training at:
 
-**Finowings:**  
-https://www.finowings.com/best-stock-market-training-lucknow/
-
 > **Disclaimer:** This content is for educational purposes only and should not be considered financial or investment advice.
